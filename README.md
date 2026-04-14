@@ -7,12 +7,12 @@ hihi names ari/vix! can call me lute or charlie!!
 
 『 she/belle!
 
-ʚ basic dni
+ʚ dni: problematic ppl, narcissistic ppl, homophobic, transphobic, racist, ppl who support ICE
 
-ㅤ ׅ 𝄂𝄚𝅦𝄚𝄞𝅄ㅤguns.lol: https://guns.lol/aaribelle
+ㅤ ׅ 𝄂𝄚𝅦𝄚𝄞𝅄ㅤmore web: https://guns.lol/aaribelle ! https://lloyd-ninjago.straw.page ! 
 
 <img width="640" height="91" alt="17714177811285378650828066740894" src="https://github.com/user-attachments/assets/57bd4626-842f-48c9-bcee-1684582fb435" />
 
-hi plz bmf im desperate feel free to add me in discord or wtv `vivwurquax`
+hi plz join my discord server.......... its linked to my pfp on the link thingy if u're blind /jokeimsorry
 
 <img width="640" height="74" alt="1771417976928974836574298228834" src="https://github.com/user-attachments/assets/8eed7436-61ce-473b-9980-233662a03fb8" />
