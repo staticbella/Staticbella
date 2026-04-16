@@ -1,7 +1,7 @@
 <img width="640" height="74" alt="17714180025696661668097743218522" src="https://github.com/user-attachments/assets/d0317f67-0307-4795-a949-c202939c8d8e" />
 
 ⪩⪨ more info in prn.cc/prn.page!! 
-hihi names ari/vix! can call me lute or charlie!! 
+hihi names ari/lia! can call me lute or charlie!! 
 
 ⧼ val fictkin & 12-/20+ yrs dniuc/iwcuf
 
